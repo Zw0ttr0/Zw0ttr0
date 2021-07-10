@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Zw0ttr0
-- 👀 I’m interested in sex
-- 🌱 I’m currently learning new practises
-- 💞️ I’m looking to collaborate on an orgie
+- 👀 I’m interested in 
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on
 - 📫 How to reach me ...
 
 <!---
